@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @TwebT24
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning python
+- 😄 Pronouns: i dont use that shi
+- ⚡ Fun fact: Im James Bond
